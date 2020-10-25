@@ -1,4 +1,4 @@
-= Cast Iron Pizza
+# Cast Iron Pizza
 
 Need to try this recipe:
 
