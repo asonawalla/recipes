@@ -28,7 +28,7 @@ MEASURE EVERYTHING OUT BY GRAM
 - 5-8 mins of kneading after everything is together
 - Rise 1 hour or until doubled
 - Divide into 6 or 8 buns
-- Shape by rolling, getting a sphere is CRITICAL
+- Shape by rolling, then press into a puck
 - Rise 1-2 hours or until doubled (likely closer to 1)
 - Egg wash (1 whole egg + splash of milk)
 - Bake 375 F 16-18 mins
