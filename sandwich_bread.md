@@ -23,5 +23,5 @@ Procedure
 * Kitchen aid all the ingredients
 * 1 Hour rise
 * Greased loaf plan, rolled dough
-* 45 min - 1 Hour second rise
-* Bake at 350 for 35-40 minutes
+* 45 min second rise (preheat oven at 30)
+* Bake at 350 for 35 minutes
