@@ -24,4 +24,4 @@ Procedure
 * 1 Hour rise
 * Greased loaf plan, rolled dough
 * 45 min second rise (preheat oven at 30)
-* Bake at 350 for 35 minutes
+* Bake at 350 for 35 minutes (for pullman pans, 25 minutes covered, 10 minutes uncovered)
