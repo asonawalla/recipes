@@ -13,6 +13,7 @@ Dry Ingredients
 * 440g bread flour
 * 8g fine sea salt
 * 21g sugar
+* optional: 2tsp [diastatic malt powder](https://smile.amazon.com/gp/product/B073RQJJKY)
 
 Other
 
