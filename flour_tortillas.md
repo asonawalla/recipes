@@ -11,7 +11,7 @@ https://thecafesucrefarine.com/best-ever-homemade-flour-tortillas/
 
 ## Instructions
 1. Mix dry ingredients in mixer bowl
-2. Add dry ingredients, stir until combined
+2. Add wet ingredients, stir until combined
 3. Knead 1-2 minutes with dough hook
 4. Divide into tortilla portions and form into balls. 16 pieces (42g each) for large burrito tortillas, 32 pieces (21g each) for small taco tortillas
 5. Cover dough balls and let rest 15-30 min
