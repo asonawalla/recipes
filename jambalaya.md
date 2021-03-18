@@ -1,4 +1,6 @@
-https://www.gimmesomeoven.com/jambalaya-recipe/#tasty-recipes-60303
+Reference: https://www.gimmesomeoven.com/jambalaya-recipe/#tasty-recipes-60303
+
+Below makes (6) servings of 300-350 calories each (usually comes out about 30 calories per oz)
 
 ### Ingredients
 * ~ 1 Tbsp Olive oil
