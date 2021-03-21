@@ -14,7 +14,7 @@ Adjust
   * 1 tsp garlic powder
   * 1 tsp onion salt
   * 1/4 tsp cayenne (adjust if using spicy pepper)
-  * 1 tsp salt
+  * 1 tsp salt (omit if using Beyond beef as the meat)
   * ground black pepper
 
 # Instructions
