@@ -7,6 +7,7 @@ Wet Ingredients
 * 175g water
 * 125g milk
 * 9g active dry yeast
+* 3 tbsp (42g) butter, softened
 
 Dry Ingredients
 
@@ -15,9 +16,6 @@ Dry Ingredients
 * 21g sugar
 * optional: 2tsp [diastatic malt powder](https://smile.amazon.com/gp/product/B073RQJJKY)
 
-Other
-
-* 3 tbsp butter
 
 Procedure
 
