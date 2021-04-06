@@ -22,7 +22,8 @@ Procedure
 * 2-4 hour second rise (preheat oven when bread is just below lid of pullman pan, about doubled)
 * Bake at 350 for 35 minutes (for pullman pans, 25 minutes covered, 10 minutes uncovered)
 
-Note: Rise is more important than time. This recipe performs much better if not rushed. 
+Note: Rise is more important than time. This recipe performs much better if not rushed.
+
 
 Example timeline:
 * Day 1, evening: feed sourdough starter
