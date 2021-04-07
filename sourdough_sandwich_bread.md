@@ -1,8 +1,7 @@
 Wet Ingredients
 
-* 100g water
-* 125g milk
-* 9g active dry yeast
+* 100g water, warm (95-105 F)
+* 125g milk, warm (95-105F, about 30s in microwave) 
 * 150g fed sourdough starter
 * 3 Tbsp (42g) butter, softened
 
