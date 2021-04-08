@@ -21,6 +21,7 @@
 * 1 tsp lemon zest
 * 1/2 tsp smoked paprika
 * 1/2 tsp aleppo pepper
+* 1 Tbsp chopped cilantro
 * Salt & pepper to taste
 
 ## Procedure
