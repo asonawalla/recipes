@@ -1,13 +1,13 @@
 ## Ingredients
 
 ### Fritters
-* 1/2-1 onion, small dice
-* 1-2 bell peppers, small dice
-* 1-2 ribs celery, small dice
+* 1/2 onion, small dice
+* 1 bell pepper, small dice
+* 1 rib celery, small dice
 * 1 jalapeno, small dice
   * Can sub in whatever vegetables are on hand; avoid long-cooking vegetables (carrots, potatoes) unless par-cooked
 * 12 oz shrimp, roughly chopped (should be chunky)
-* 1 cup flour + 1.5 tsp baking powder
+* 1/2 cup flour + 3/4 tsp baking powder
 * 1 egg
 * Hot sauce, to taste (Frank's or similar)
 * Canola oil (for frying)
