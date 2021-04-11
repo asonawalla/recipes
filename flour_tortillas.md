@@ -3,7 +3,7 @@
 https://thecafesucrefarine.com/best-ever-homemade-flour-tortillas/
 
 ## Ingredients
-* 3 cups (spooned & leveled) AP Flour
+* 3 cups (spooned & leveled) AP Flour (400g)
 * 1 tsp salt
 * 1 tsp baking powder
 * 1/3 cup (2.67 oz) neutral oil (canola or similar)
