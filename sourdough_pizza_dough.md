@@ -1,6 +1,6 @@
 Ingredients
 * 50g fed sourdough starter
-* 135g bread flour
+* 145g bread flour
 * 75g water
 * 1 tsp salt
 * 1/2-1 tbsp olive oil
