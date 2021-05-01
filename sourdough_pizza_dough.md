@@ -8,5 +8,5 @@ Ingredients
 
 Procedure
 * Knead in kitchen aid 3-5 minutes
-* Rise on counter 1-3 hours
-* Fridge overnight
+* Rise on counter 1-3 hours (optional)
+* Fridge overnight (or longer) in oiled tupperware 
