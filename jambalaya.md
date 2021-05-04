@@ -32,7 +32,7 @@ Below makes (6) servings of 300-350 calories each (usually comes out about 30 ca
 6. Add garlic; cook 30s until fragrant
 7. Add some seasoning mix and tomato paste; cook 1-2 min until tomato paste darkens
 8. Add rice, mix, cook 1-2 minutes
-9. Add chicken broth and bay leaf, bring to a simmer
+9. Add chicken broth, tomatoes and bay leaf, bring to a simmer
 10. Turn heat to low and simmer 15-20 minutes, stirring every 5 minutes or so, until rice is cooked
 11. Add meat back into dutch oven for last 5 minutes of simmer
 12. Taste and adjust seasoning
