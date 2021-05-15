@@ -12,8 +12,8 @@ Below makes (6) servings of 300-350 calories each (usually comes out about 30 ca
 * 4 cloves garlic, minced
 * 1-2 Tbsp tomato paste
 * (1) 14 oz can crushed or diced tomatoes, or (1) 10 oz can of Rotel
-* 6 oz (3/4 cup) uncooked rice
-* 1.5-2 cups chicken broth
+* 12 oz (1 1/2 cup) uncooked rice
+* 3-4 cups chicken broth
 * 1 bay leaf
 * Seasoning mix:
   * 2 parts salt
