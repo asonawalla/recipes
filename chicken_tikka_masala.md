@@ -39,7 +39,7 @@ Extra (for simmering):
 - Star anise
 - Cinnamon stick
 
-### Masala
+### Sauce
 
 Canned tomatoes and coconut milk work well enough for this recipe.  We've tried cream + water instead of coconut milk, though that
 seems to separate more easily (especially as leftovers).
