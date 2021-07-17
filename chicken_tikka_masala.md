@@ -59,7 +59,8 @@ seems to separate more easily (especially as leftovers).
 - Add spice mix, ginger & garlic, and tomato paste.  Let bloom.
 - Add tomatoes and coconut milk, scrape the bottom to de-glaze.
 - Once everything is softened, take off heat and immersion blend until very smooth.
-- Add chicken, stir and bring to a simmer.
+- Stir and bring to a simmer.
 - Add bay leaf, star anise, cinnamon stick.
 - Simmer on lowest setting for 30 mins covered.
+- Halfway in, add chicken.
 - Stir in chopped cilantro before serving.
