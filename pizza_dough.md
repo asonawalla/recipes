@@ -1,6 +1,6 @@
 # Pizza Dough
 
-(1) 9 oz dough ball (Detroit or bar style):
+## (1) 9 oz dough ball (Detroit or bar style):
 * 160 g bread flour
 * 100 g water
 * 1 tsp diastatic malt powder (optional)
@@ -11,7 +11,7 @@
 Knead in kitchen aid, let rise 2-4 hours on counter, then 24-96 hours in fridge. 
 
 
-(1) 12 oz dough ball (12-14" NY style):
+## (1) 12 oz dough ball (12-14" NY style):
 * 216 g bread flour
 * 135 g water
 * 1.5 tsp diastatic malt powder (optional)
@@ -22,7 +22,7 @@ Knead in kitchen aid, let rise 2-4 hours on counter, then 24-96 hours in fridge.
 Knead in kitchen aid, let rise 2-4 hours on counter, then 24-96 hours in fridge.
 
 
-(1) 16 oz dough ball (16" NY style)
+## (1) 16 oz dough ball (16" NY style)
 * 270 g bread flour
 * 169 g water 
 * 2 tsp diastatic malt powder (optional)
