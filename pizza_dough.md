@@ -1,7 +1,7 @@
 # Pizza Dough
 
 ## (1) 9 oz dough ball (Detroit or bar style):
-* 160 g bread flour
+* 160 g bread flour (or blend: 20g whole wheat, 70g bread, 70g 00)
 * 100 g water
 * 1 tsp diastatic malt powder (optional)
 * 0.25 tsp yeast
