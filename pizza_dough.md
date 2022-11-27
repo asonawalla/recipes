@@ -11,7 +11,7 @@
 Knead in kitchen aid, let rise 2-4 hours on counter, then 24-96 hours in fridge.
 
 ## (2) 9 oz dough balls (Detroit or bar style):
-* 320 g bread flour (or blend: 20g whole wheat, 70g bread, 70g 00)
+* 320 g bread flour (or blend: 40g whole wheat, 140g bread, 140g 00)
 * 200 g water
 * 2 tsp diastatic malt powder (optional)
 * 0.5 tsp yeast
