@@ -6,13 +6,13 @@ Wet Ingredients
 
 * 175g water
 * 125g milk
-* 9g active dry yeast
+* 9g active dry yeast (2 tsp)
 * 3 tbsp (42g) butter, softened
 
 Dry Ingredients
 
 * 440g bread flour
-* 8g fine sea salt
+* 8g table salt (1.5 tsp)
 * 21g sugar
 * optional: 2tsp [diastatic malt powder](https://smile.amazon.com/gp/product/B073RQJJKY)
 
